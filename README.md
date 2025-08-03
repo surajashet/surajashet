@@ -1,4 +1,4 @@
-# 💫 About Me:
+#  About Me:
 Hi i'm Suraj A shet
 
 ## 🌐 Socials:
